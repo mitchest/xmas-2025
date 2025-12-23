@@ -1,1 +1,1 @@
-# xmas-2025
+# GO TO THE STUDY
